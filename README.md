@@ -1,4 +1,4 @@
-- Currently trying to learn programming while losing iq points by being sleep deprived
+- I'm Adam and this has been the energy drink experience.
 
 
 <!---
